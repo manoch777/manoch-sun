@@ -32,5 +32,3 @@ Find out more
 Mingori Manual Pipe Benders
 Find out more
 
-Metal Forming Machinery
-Find out more
