@@ -29,5 +29,4 @@ Find out more
 Ercolina Manual Pipe Benders
 Find out more
 
-Mingori Manual Pipe Benders
-Find out more
+Mingori Manual Pipe Bender
